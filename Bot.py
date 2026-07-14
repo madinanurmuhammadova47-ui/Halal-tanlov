@@ -1,1 +1,1 @@
-print("Bot ishlayapti")
+8789562762:AAGIVDY8yeS4rThv8mLlXh7ZUGwnwlhVIiM
